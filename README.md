@@ -7,7 +7,7 @@
  - Most people dont even come close to understanding its own potential. Just keep going, especially if you are going through hell. "Impossible" is just a worthy callange.
  - This world is a simulation. It is real, but we as souls does not belong to this world. Keep performing your duties and make it and all your life a sacrifice to The Lord.
  
-🌱 - Technologies used in my work: Java, PHP, HTML, CSS, JS, SQL and APIs. 
+🌱 Technologies used in my work: Java, PHP, HTML, CSS, JS, SQL and APIs. 
    - Key soft skills as a person: self-discipline, devotion to God, care for my family.
 
 💞️ I’m looking to collaborate on fantastic projects to make our everyday life better.
