@@ -12,4 +12,4 @@
 
 💞️ I’m looking to collaborate on fantastic projects to make our everyday life better.
 
-📫 How to reach me? Easy. shestakovmaxxxx@gmail.com
+📫 How to reach me? Easy. shestakovmaxx@gmail.com
